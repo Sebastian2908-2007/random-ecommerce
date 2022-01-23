@@ -48,6 +48,9 @@ sebastiancrespin279@gmail.com
 
 ## Demonstration
 https://watch.screencastify.com/v/TkOyBKN6MFXEUVM4vjPJ
+https://watch.screencastify.com/v/witCJnTBv8CTqgruSaZa
+https://watch.screencastify.com/v/Oa8I5y6IbRkczZP9J99Y
+Be entertained...
 
 
 ## License
